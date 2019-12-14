@@ -21,3 +21,7 @@ sandman
 Amon Amarth 
 
 mount doom
+
+Game soundtracks like Mass effect
+
+synthwave... 
